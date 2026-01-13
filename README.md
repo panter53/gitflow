@@ -1,1 +1,2 @@
 # gitflow
+# pokemon is een leuk spel dat laatst een nieuwe game heeft uitgebracht waar de meningen over verdeeld zijn de game heet pokemon legends ZA sommige mensen vinden dit een slecht spel door de niet zo heele goede graphics en de minder avontuurlijke wereld die de vorige legends game wel had pokemon legends Arcues maar sommige mensen vinden de game wel leuk door de meer open gevoel dat het geeft dan aan de normaale pokemon games
